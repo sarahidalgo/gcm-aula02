@@ -2,5 +2,6 @@
 
 Atores preferidos:
 Hugh Jackman
-Gerard Butler
+Brad Pitt
 Marco Pigossi
+Tony Ramos
